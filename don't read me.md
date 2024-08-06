@@ -1,4 +1,5 @@
-- hi, i'm mad person. (just kidding, how are u?)
+- hi, i'm bad, stupid an alone person. (just kidding, how are u?)
+- i hate the capitalism and love philosophy (cats too)
 
 <!---
 brulhoo/brulhoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
